@@ -1,1 +1,1 @@
-https://moe-counter.glitch.me/get/@wotikama?theme=rule34
+<img src="https://moe-counter.glitch.me/get/@wotikama?theme=rule34" />
