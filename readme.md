@@ -1,1 +1,1 @@
-<img src="https://count.getloli.com/get/@:wotikama" />
+https://moe-counter.glitch.me/get/@wotikama?theme=rule34
